@@ -1,1 +1,1 @@
-granca picka
+
